@@ -1,0 +1,1 @@
+# ricofukase8.github.io
